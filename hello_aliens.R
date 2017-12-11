@@ -1,0 +1,1 @@
+Hello, aliens! We are humans living on planet Earth and we would like to know which planet you are from. Nice to meet you!
